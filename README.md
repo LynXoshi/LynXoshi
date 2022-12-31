@@ -1,4 +1,4 @@
-- 👋 Hi 
+👋 Hi 
 
 Once upon a time, there was a developer named LynXoshi who had grown tired of the negativity and scams that seemed to plague the cryptocurrency space. He had always been passionate about using technology to help people, and he knew that there had to be a better way to use crypto for the greater good.
 
